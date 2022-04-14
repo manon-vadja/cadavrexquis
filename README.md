@@ -53,3 +53,10 @@ Another variation of the exquisite corpse also called "picture consequences" is 
 * Jake and Dinos Chapman have produced a number of exquisite corpses. [^1]
 
 * Eric Croes, Cadavre exquis, Chat Santiag (2017). Croes used his exquisite corpse drawing to make this clay sculpture.[12]
+
+----
+
+## Rules
+
+The only hard and fast rule of Exquisite Corpse is that each participant is unaware of what the others have written, thus producing a surprising—sometimes absurd—yet often beautiful poem.
+ Exquisite Corpse is a great way to collaborate with other poets, and to free oneself from imaginative constraints or habits
