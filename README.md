@@ -44,12 +44,12 @@ Another variation of the exquisite corpse also called "picture consequences" is 
 
 ### Art
 
-*The Narrative Corpse (Gates of Heck, 1995) is a comic book chain-story by 69 all-star cartoonists co-edited by Art Spiegelman and R. Sikoryak.
+* The Narrative Corpse (Gates of Heck, 1995) is a comic book chain-story by 69 all-star cartoonists co-edited by Art Spiegelman and R. Sikoryak.
 
-*The Breaking Boredom Project in graphic design, Cairo (2008)
+* The Breaking Boredom Project in graphic design, Cairo (2008)
 
-*The Exquisite Corpse Adventure (Candlewick, 2011), commissioned by the Library of Congress, uses well-known children's authors and illustrators[11]
+* The Exquisite Corpse Adventure (Candlewick, 2011), commissioned by the Library of Congress, uses well-known children's authors and illustrators[^11]
 
-*Jake and Dinos Chapman have produced a number of exquisite corpses. [1]
+* Jake and Dinos Chapman have produced a number of exquisite corpses. [^1]
 
-*Eric Croes, Cadavre exquis, Chat Santiag (2017). Croes used his exquisite corpse drawing to make this clay sculpture.[12]
+* Eric Croes, Cadavre exquis, Chat Santiag (2017). Croes used his exquisite corpse drawing to make this clay sculpture.[12]
