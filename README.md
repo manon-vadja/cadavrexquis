@@ -21,7 +21,7 @@ Later the game was adapted to drawing and collage, in a version called picture c
 
 Another variation of the exquisite corpse also called "picture consequences" is Telephone Pictionary, a game in which players alternate writing descriptions and matching illustrations based on the previous step.
 
-![exquisite-corpse.jpeg](/exquisite.jpeg)
+![exquisite-corpse.jpeg](/exquisite-corpse.jpeg)
 
 
 
